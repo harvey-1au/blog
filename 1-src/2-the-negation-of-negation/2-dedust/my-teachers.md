@@ -12,4 +12,5 @@
 - [宮本 茂](https://ja.wikipedia.org/wiki/宮本茂)：艺术迄今为止的最高峰。
 - [许成钢](https://www.aisixiang.com/data/50451.html)
 - [柴静](https://www.youtube.com/@chaijing2023)：一位中国记者。
+- [李克强](https://youtu.be/pbdRM_XWtFA)：幸会，克强。
 - [岩田 聡](https://youtu.be/RMrj8gdUfCU)："On my business card, I am a corporate president. In my mind, I am a game developer. But in my heart, I am a gamer."
