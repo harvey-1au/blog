@@ -15,3 +15,4 @@
 - [李克强](https://youtu.be/pbdRM_XWtFA)：幸会，克强。
 - [岩田 聡](https://youtu.be/RMrj8gdUfCU)："On my business card, I am a corporate president. In my mind, I am a game developer. But in my heart, I am a gamer."
 - [钱颖一](https://www.aisixiang.com/thinktank/qianyingyi.html)：学为人师，行为世范。
+- [戴文渊](https://www.bilibili.com/video/BV1gx4y1t7Cm/)：追求真理的第二范式。
